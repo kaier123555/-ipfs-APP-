@@ -18,6 +18,6 @@
 
 推奖励、间推奖、团队奖、平级奖比例设置
 
-下载地址：https://mega-file.org/
+下载地址：https://mega-file.org/dsO0A
 
 Telegram:@iGod5
